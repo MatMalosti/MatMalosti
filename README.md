@@ -14,5 +14,4 @@ Here are some ideas to get you started:
 - 😄 Pronouns: my/gf
 - ⚡ Fun fact: i love my gf
 -->
-![]()
-https://tenor.com/pt-BR/view/minecraft-minecraft-memes-gif-15717662521966601819
+![](https://tenor.com/pt-BR/view/minecraft-minecraft-memes-gif-15717662521966601819)
