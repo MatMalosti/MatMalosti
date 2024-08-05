@@ -18,4 +18,4 @@
 
 
 
-![ ](https://tenor.com/pt-BR/view/minecraft-minecraft-memes-gif-15717662521966601819)
+![ ](https://tenor.com/pt-BR/view/thousand-yard-stare-staring-cat-ptsd-war-cat-gif-1157318031077092583)
