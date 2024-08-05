@@ -18,4 +18,4 @@
 
 
 
-![ ](https://tenor.com/pt-BR/view/thousand-yard-stare-staring-cat-ptsd-war-cat-gif-1157318031077092583)
+![ik what you did.](https://tenor.com/pt-BR/view/thousand-yard-stare-staring-cat-ptsd-war-cat-gif-1157318031077092583)
